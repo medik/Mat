@@ -13,9 +13,9 @@
 * En gnutta kardemumma
 
 Blötlägg kikärtshelvetena över natten. Blanda i därefter allt skit i en jävla
-matberedare. Låt skiten sen stå i kylen i några timmar. Rulla ihop de till
-bollar och fritera helvetet i HÖG temperatur (ska bubbla mycket). Är det
-krispigt är det klart, så låt de torka på hushållspapper
+matberedare. (GLÖM FÖR FAN INTE HACKA LÖKHELVETENA) Låt skiten sen stå i kylen i
+några timmar. Rulla ihop de till bollar och fritera helvetet i HÖG temperatur 
+(ska bubbla mycket). Är det krispigt är det klart, så låt de torka på hushållspapper
 
 Pro tip: Får du inte falafeln att hålla ihop när du friterar så kan du testa
 att rulla de i mjöl, funkar inte det ska det funka med ägg.
