@@ -5,8 +5,8 @@
 ## Nej nu blev det konstig, nu får vi fan skärpa oss
 * 1 färskgräddad limpa
 * litet pkt fetaost
-* Liten burk Pesto baslika
-* 1 gul läk
+* Liten burk Pesto basilika
+* 1 gul lök
 * 1 tomat
 * Olivolja (other oils are available)
 
