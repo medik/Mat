@@ -2,7 +2,7 @@
 # Korv Stroganoff
 ---  1,4 - 2,4 kg CO2/portion 
 
-* 1 stor falukorv
+* 1 GIGANTISK falukorv
 * 2 gula lökar
 * 3 dl matlagningsgrädde
 * 3 msk tomatpuré
