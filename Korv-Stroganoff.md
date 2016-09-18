@@ -18,4 +18,4 @@
 ## Tillbehör
 * Jasmineris
 
-Hacka och fräs lökhelvetet i matolja tills lökfan blir genomskinlig, blir den bränd har du för fan alldeles för hög tempratur. Strimla falukorv under tiden. Addera falukorv till skiten och stek tills stekyta uppnås, och Putin blir tillsatt en femte gång. Addera grädde, soja, tomatpuré, salt och peppar till hela jävla soppan och rör om tills entropin är helt jävla förstörd. Låt stå i ~5 min, lyssna på hardbass samtidgt om du är badass. Dasvidadja Komrade!
+Hacka och fräs lökhelvetet i matolja tills lökfan blir genomskinlig, blir den bränd har du för fan alldeles för hög tempratur. Släng i den strimlade falukorvshelvetet in i skiten och stek helvetet tills stekyta uppnås, och Putin blir tillsatt en femte gång. Addera grädde, soja, tomatpuré, salt och peppar till soppfan och rör om tills entropin är helt jävla förstörd. Låt stå i ~5 min, lyssna på hardbass samtidgt om du är badass. Dasvidadja Komrade!
