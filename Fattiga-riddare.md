@@ -8,7 +8,7 @@
 * Parmesanost
 
 Blanda helvetet i en bunke. Tryck därefter i brödjävlarna i smeten och stek
-allt under medelvärme. Vill du lyxa till det lite, är det möjligt att strö över
-parmesanost.
+allt under hög-medelvärme. Vill du lyxa till det lite, är det möjligt att strö över 
+parmesanost när du steker.
 
 DU KAN INTE SPARA SMETEN, GE UPP
