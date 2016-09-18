@@ -5,7 +5,6 @@
 * 1 stor falukorv
 * 2 gula lökar
 * 3 dl matlagningsgrädde
-* (The above is not a penis allusion)
 * 3 msk tomatpuré
 * 1 msk soja
 * Matolja att steka falukorven i
