@@ -4,10 +4,10 @@
 * 0.75 dl mjöl
 * 1 ägg
 * 0.75 dl mjölk
-* 2 brödskivor
 
 ## Etc
 * Parmesanost
+* 2 brödskivor
 * Matfett att steka i
 
 Blanda smethelvetet i en bunke. Tryck därefter i brödjävlarna i smeten och stek
