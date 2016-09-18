@@ -1,7 +1,7 @@
 # Mat
 
 Här finns en receptsamling som är skriven och testad under tortyrliknande
-förhållanden. Du är varmt välkommen att gaffla detta depå och göra en dragförfrågan.
+förhållanden av wannabe kulinariska studenter med för lite eller för mycket fritid. Du är varmt välkommen att gaffla detta depå och göra en dragförfrågan.
 
 ## Stilguide
 
