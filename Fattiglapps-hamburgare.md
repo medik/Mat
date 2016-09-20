@@ -14,6 +14,6 @@
 * Isbergssallad
 * Tomat, skivad
 * Hamburgerdressing
-* Pågen Rasker
+* Pågen Rasker ©
 
 Rör ihop färs, ägg och ströbröd. Stek skiten tills nästan klar. Ös på FETT med kryddhelvete. Stek tills genomstekt. Använd rasker-limpan som bröd. Servera med pommes, ris eller whatnot.
