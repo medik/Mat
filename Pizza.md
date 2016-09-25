@@ -20,7 +20,7 @@
 * Tomatskivor
 * Isbergsallad
 * Pommes strips
-* Ägg  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;           <--- Här börjar de mer obskura grejerna
+* Ägg  
 * Hackade mandlar
 * Spenat
 * Kyckling
