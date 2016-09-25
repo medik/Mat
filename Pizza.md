@@ -24,8 +24,7 @@
 * Hackade mandlar
 * Spenat
 * Kyckling
-* Känguru
-* Rvna morötter
+* Rivna morötter
 * Ingefära
 * Potatis
 * Majonäs
