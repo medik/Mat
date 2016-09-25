@@ -16,7 +16,7 @@
 
 ### Förberedelser
 TINA RÖDSPÄTTAN! (Får inte vara ett spår av is kvar, kör i mikro på låg effekt om du har ADHD och inte orkar vänta)
-K, detta kommer bli stök utav helvete, så förbered med underlägg, förkläde, latexhandskar och helst kolfiltermask. Ös upp hälften av ströbrödet samt hälten av mjölet på ett skärbräde av rimlig storlek. Knäck äggen i en djup tallrik och blanda ihop så gula skiten och vita skiten blir en enda homogen röra. Fan!
+K, detta kommer bli stök utav helvete, så förbered med underlägg, förkläde, latexhandskar och helst kolfiltermask. Ös upp hälften av ströbrödet samt hälften av mjölet på ett skärbräde av rimlig storlek. Knäck äggen i en djup tallrik och blanda ihop så gula skiten och vita skiten blir en enda homogen röra. Fan!
 Tillsätt resten av ströbrödet/mjölet när det börjar bli ont.
 
 ### Panering
