@@ -18,7 +18,7 @@
 * Paprika
 * Räkor
 * Tomatskivor
-* Isbergsallad
+* Isbergssallad
 * Pommes strips
 * Ägg  
 * Hackade mandlar
