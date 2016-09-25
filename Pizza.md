@@ -18,13 +18,14 @@
 * Paprika
 * Räkor
 * Tomatskivor
-* Isbergssallad
+* Isbergsallad
 * Pommes strips
-* Ägg  
+* Ägg  &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;           <--- Här börjar de mer obskura grejerna
 * Hackade mandlar
 * Spenat
 * Kyckling
-* Rivna morötter
+* Känguru
+* Rvna morötter
 * Ingefära
 * Potatis
 * Majonäs
