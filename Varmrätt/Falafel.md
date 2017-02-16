@@ -1,21 +1,20 @@
 # Falafel
+--- asså va i helvete
+## Ingridienser
 
-* 4.5 dl Torra kikärtor
-* 1 liten lök
-* 4 msk persilja
-* 3-5 st vitlöksklyftor
-* 1 1/2 matskedar vetemjöl
-* 1 3/4 teskedar salt
-* 2 teskedar spiskummin
-* 1 tesked korriander
-* 1/4 tsk svartpeppar
-* 1/4 tsk cayennepeppar
-* En gnutta kardemumma
+* 4.5 kg FAlafeL
+* 1 liten Hink
+* en saltSten
 
-Blötlägg kikärtshelvetena över natten. Blanda i därefter allt skit i en jävla
-matberedare. (GLÖM FÖR FAN INTE HACKA LÖKHELVETENA) Låt skiten sen stå i kylen i
-några timmar. Rulla ihop de till bollar och fritera helvetet i HÖG temperatur 
-(ska bubbla mycket). Är det krispigt är det klart, så låt de torka på hushållspapper
+## Metod / experimentellt utförande
 
-Pro tip: Får du inte falafeln att hålla ihop när du friterar så kan du testa
-att rulla de i mjöl, funkar inte det ska det funka med ägg.
+Falafäll är gudars mat skaru vette, så se te å vär svölten! Börj me ogg gå in i drethuse å lägg falafäln i badkare ritt, står på förpackninga hur läng.
+å nu knöru skita i en mat-bäredare. elller e stav-mixxer döger å. (har bare täste stav-mixer).
+Kånsistensa kan ble liggnas mella allt frå jolappelmos tä hackade morätter. så du kan behövä agere annålunda i fortsätninga eller nö.
+Nu knör u ner dä främande objäktet i hinka mä ölje MEN (OBS OBS) Anväd helst OLIV-ölje! för 'en fryser ve höjre tempreatur eller höss fan, en kompis te maj sa dä 1 gång.
+vänt i typ 1 timme eller nö täss ru tar opp 'en. pass för nu äan vrinsur! Näre ä hårt som fardins domkraft så äre kanske klart. täst å drämm te!
+
+## Falafel
+
+...
+Dä ä bra skit
