@@ -6,24 +6,19 @@
 
 ## Topping (Välj och vraka)
 * Ost (Färdigriven pizzaost eller mozarella)
-* Skinka (klipp påläggsskinka med sax)
-* Salami
+* Avocado
+* Ruccola
 * Chilifrukt
 * Lök
 * Paprika
-* Kebabkött
 * Oliver
 * Champinjoner
-* Tonfisk
-* Paprika
-* Räkor
 * Tomatskivor
 * Isbergssallad
 * Pommes strips
 * Ägg  
 * Hackade mandlar
 * Spenat
-* Kyckling
 * Rivna morötter
 * Ingefära
 * Potatis
